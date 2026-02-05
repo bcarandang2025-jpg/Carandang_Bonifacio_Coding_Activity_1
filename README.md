@@ -1,1 +1,1 @@
-# Carandang_Bonifacio_Coding_Activity_1
+# COURSEWORK_Coding_Activity_1
